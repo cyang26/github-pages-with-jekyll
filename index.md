@@ -9,4 +9,6 @@ Piano - I've been playing for the last decade!
 
 EB Girls Track and Field Team - my shins hurt
 
+Asian Club Art Director
+
 ![f](https://user-images.githubusercontent.com/63884914/118982608-96e0d400-b949-11eb-83d9-ae6fe85f8801.jpg)
