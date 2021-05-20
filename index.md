@@ -2,7 +2,7 @@
 title: "home"
 ---
 
-Hi I'm Catherine and here you can find my social media and information about me :)
+Hi I'm Catherine Yang and here you can find my social media and information about me :)
 
 I'm a sophomore in NJ and in my free time I like reading, drawing, and playing the piano. 
 
