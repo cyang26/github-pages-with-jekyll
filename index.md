@@ -9,4 +9,4 @@ Piano - I've been playing for the last decade!
 
 EB Girls Track and Field Team - my shins hurt
 
-![image](/assets/hi.png)
+![image](/assets/d.png)
